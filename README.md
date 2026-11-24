@@ -1,1 +1,0 @@
-# recuperatorio-tpi_ccd
